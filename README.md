@@ -22,4 +22,4 @@ Members are not allowed to text each other in private without receiving permissi
                         **Constantly violation of these rules will not be tolerated.**
 
                                                 •All rights reserved•
-                                                SOLEWELKIN 2015 ~ 2020
+                                                SOLEWELKIN 2015 ~ 2021
